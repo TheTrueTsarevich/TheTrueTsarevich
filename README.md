@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TheTrueTsarevich, I'm a Kyrgyz-born Russian-Canadian teenager who has aspirations of being a cosmologist. I also like redhead women ( ͡° ͜ʖ ͡°)
+- 👋 Hi, I’m @TheTrueTsarevich, I'm a Kyrgyz-born Russian-Canadian teenager who has aspirations of being a cosmologist. 
 - 👀 I’m interested in cosmology, astrophysics, coding, and cats!
 - 🌱 I’m currently learning physics 11 and computer science 12
 - 💞️ I’m looking to collaborate on projects with whatever the future holds
