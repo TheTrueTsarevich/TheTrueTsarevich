@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @TheTrueTsarevich, I'm a Kyrgyz-born Russian-Canadian teenager who has aspirations of being a cosmologist. 
+- 👋 Hi, I’m @TheTrueTsarevich, I'm a Canadian who has aspirations of being a cosmologist. 
 - 👀 I’m interested in cosmology, astrophysics, coding, and cats!
-- 🌱 I’m currently learning physics 11 and computer science 12
+- 🌱 I’m currently learning the art of waking up at 6:30AM
 - 💞️ I’m looking to collaborate on projects with whatever the future holds
 - 📫 How to reach me? That's up to you ;)
 
